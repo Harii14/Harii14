@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Harii14
+- 👋 Hi, I’m @Hari
 - 👀 I’m interested in verse projects
 - 🌱 I’m currently web 3
 - 💞️ I’m looking to collaborate on crypto space
